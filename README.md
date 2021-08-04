@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @The-Third-Man
+- 👀 I’m interested in C++, Python, Javascript, Deep Learning, CryptoCurrecny, Unreal Engine.
+- 🌱 I’m currently learning C++, Python, Javascript, Deep Learning, CryptoCurrecny, Unreal Engine.
+- 💞️ I’m looking to collaborate on everyone.
+- 📫 How to reach me YOU CAN'T
